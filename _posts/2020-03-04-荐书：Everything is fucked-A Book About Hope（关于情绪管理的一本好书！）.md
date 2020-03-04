@@ -23,14 +23,8 @@
 > 3.Communicate the above calmly and compassionately.
 
 ### 关于作者
-![](https://markmanson.net/wp-content/uploads/2018/04/cropped-social.jpg)
-**Mark Manson**
-2007年毕业于波士顿大学，目前居住于纽约。
-Mark的一句话我很喜欢：
+![作者照片](https://markmanson.net/wp-content/uploads/2018/04/cropped-social.jpg)  
+**Mark Manson**  
+2007年毕业于波士顿大学，目前居住于纽约。  
+Mark的一句话我很喜欢：  
 > Life is about solving problems. Therefore,learn how to pick good problems. Avoiding problems just makes everything worse.
-
-
-购买地址： 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibWb7B7zd1MOVobXnIH9AniatvAiaOSpc6Bgmmd32IP78gfNPnONicOETibwKH0exvWraMOaJWg6MKyrKfAnjARMlKg/640?wx_fmt=png&tp=webp&wxfrom=5&wx_lazy=1&wx_co=1)
-[亚马逊](https://www.amazon.com/) 电子版价格：14美元≈98人民币  
-[拼职场小店](https://j.youzan.com/u0C2u9)电子版价格：19.9人民币（前100名购买享受16.9元的价格优惠，先到先得！）
