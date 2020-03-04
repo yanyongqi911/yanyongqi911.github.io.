@@ -25,6 +25,7 @@
 ### 关于作者
 ![作者照片](https://markmanson.net/wp-content/uploads/2018/04/cropped-social.jpg)  
 **Mark Manson**  
+![作者博客：]（https://markmanson.net/）
 2007年毕业于波士顿大学，目前居住于纽约。  
 Mark的一句话我很喜欢：  
 > Life is about solving problems. Therefore,learn how to pick good problems. Avoiding problems just makes everything worse.
